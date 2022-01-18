@@ -1,0 +1,2 @@
+# nezinu
+nezinu kas jaraksta
